@@ -1,4 +1,3 @@
-#csgobig-promo-code-csgobettings: CSGOBig	promo code CSGOBETTINGS -	5% Deposit Bonus + 3 Free Cases
 <h1>CSGOBig	promo code CSGOBETTINGS -	Get 5% Deposit Bonus + 3 Free Cases</h1>
 
 Are you passionate about CS:GO skins, trading, or gambling? If so, CSGOBig is the perfect platform for you to explore thrilling games and win exciting prizes. To make your experience even more rewarding, they’ve rolled out an exclusive deal: by using the promo code CSGOBETTINGS, you can unlock a 5% bonus on your deposit and claim 3 free cases filled with potential treasures.
